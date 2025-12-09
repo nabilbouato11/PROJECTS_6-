@@ -30,7 +30,7 @@ https://drive.google.com/file/d/1h2_R-fQq0FDlAGf7_SUgXFnWsEuCnIVM/view?usp=drive
 https://drive.google.com/file/d/1VOQafj6hZt2o1_eihuBdn2UfSujz1AQL/view?usp=drivesdk
 
 ```
-6.memberikan pesona ke email
+6.memberikan pesan ke email
 ```
 
 https://drive.google.com/file/d/1aWY1BlHs2Irz0-aMBykGkqfbAt05jOyQ/view?usp=drivesdk
